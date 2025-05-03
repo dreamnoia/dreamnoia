@@ -1,16 +1,14 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**dreamnoia/dreamnoia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://files.catbox.moe/iu5zdp.png)
 
-Here are some ideas to get you started:
+</div> <div align="center"> ꒰ 𝗔𝗯𝗼𝘂𝘁 𝗺𝗲 ꒱
+</div> <div align="center">   ⠀⠀
+</div> <div align="center"> 𝗰 + 𝗵 always , He / him
+</div> <div align="center"> I'm often off tab so 𝘄𝟮𝗶 if i don't reply !
+</div> <div align="center">   ⠀⠀
+</div> <div align="center">  ୨ Rentry ♡  Carrd ୧
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+
+![image](https://github.com/user-attachments/assets/523c39a5-0c97-4ba0-97b5-3b0d08ec15f9)
