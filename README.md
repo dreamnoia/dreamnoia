@@ -4,8 +4,8 @@
 
 </div> <div align="center"> ꒰ 𝗔𝗯𝗼𝘂𝘁 𝗺𝗲 ꒱
 </div> <div align="center">   ⠀⠀
-</div> <div align="center"> 𝗰 + 𝗵 always , He / him
-</div> <div align="center"> I'm often off tab so 𝘄𝟮𝗶 if i don't reply !
+</div> <div align="center"> 𝗠𝗶𝗻𝗼𝗿 , He / him
+</div> <div align="center"> This is still a WIP !
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">  ୨ Rentry ♡  Carrd ୧
 
