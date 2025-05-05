@@ -7,7 +7,7 @@
 </div> <div align="center"> 𝗠𝗶𝗻𝗼𝗿 , He / him
 </div> <div align="center"> This is still a WIP, Please be patient ♡ !
 </div> <div align="center">   ⠀⠀
-</div> <div align="center">  ୨ Rentry ♡  Carrd ୧
+</div> <div align="center">  ୨ Rentry ♡ Carrd ୧
 
 <div align="center">
 
