@@ -5,7 +5,7 @@
 </div> <div align="center"> ꒰ 　𝗔𝗯𝗼𝘂𝘁 𝗺𝗲 　꒱
 </div> <div align="center">   ⠀⠀
 </div> <div align="center"> 𝗠𝗶𝗻𝗼𝗿 , He / it
-</div> <div align="center"> This is still a WIP, Please be patient ♡ !
+</div> <div align="center"> Fatui Lore Ethusuast ♡ !?
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">  ୨ Rentry ♡ Carrd ୧
 
