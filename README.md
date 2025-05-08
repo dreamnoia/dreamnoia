@@ -2,7 +2,7 @@
 
 ![image](https://github.com/user-attachments/assets/62e05457-4041-4fc6-a9b2-63a7ed0f7109)
 
-❝　　𝐹𝓇𝑜𝓂 𝒜𝓈𝒽𝑒𝓈 𝑅𝑒𝒷𝑜𝓇𝓃　　❞
+❝　　*From Ashes Reborn*　　❞
 
 <div align="center">　
 
@@ -16,6 +16,7 @@
 <div align="center">　
 <div align="center">　୨ Rentry ♡ Carrd ୧
 <div align="center">　
+
 
 
 <div align="center">
