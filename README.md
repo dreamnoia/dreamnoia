@@ -2,16 +2,20 @@
 
 ![image](https://github.com/user-attachments/assets/62e05457-4041-4fc6-a9b2-63a7ed0f7109)
 
-</div> <div align="center"> ꒰ 　𝗔𝗯𝗼𝘂𝘁 𝗺𝗲 　꒱
-</div> <div align="center">   ⠀⠀
-</div> <div align="center"> Minor , He / it
-</div> <div align="center"> Fatui Lore Ethusuast ♡ Loyal Wanderer Devotee
-</div> <div align="center">   ⠀⠀
-</div> <div align="center">  ୨ Rentry ♡ Carrd 
+❝　　𝐹𝓇𝑜𝓂 𝒜𝓈𝒽𝑒𝓈 𝑅𝑒𝒷𝑜𝓇𝓃　　❞
+
+<div align="center">　
 
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/1463a26c-419f-48db-9f76-3285c688268d)
+![image](https://github.com/user-attachments/assets/6687eab7-84f6-4770-be89-b6540a141aaf)
+
+<div align="center"> He　/　it　⋮　Minor　⋮　Scara irl　!?
+<div align="center"> usually offtab　,　w2i　+　c+h !
+<div align="center"> Fatui Lore Enthusiast　♡　Loyal Wanderer & Scara Devotee
+<div align="center">　
+<div align="center">　୨ Rentry ♡ Carrd ୧
+<div align="center">　
 
 
 <div align="center">
