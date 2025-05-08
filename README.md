@@ -10,7 +10,7 @@
 
 ![image](https://github.com/user-attachments/assets/6687eab7-84f6-4770-be89-b6540a141aaf)
 
-<div align="center"> He　/　it　⋮　Minor　⋮　Scara irl　!?
+<div align="center"> He　/　it　⋮　Minor　⋮　Scara irl　!?　>_<
 <div align="center"> usually offtab　,　w2i　+　c+h　!
 <div align="center"> Fatui Lore Enthusiast　♡　Loyal Wanderer　/　Scara Devotee　!?
 
