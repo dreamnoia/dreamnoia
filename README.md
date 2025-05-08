@@ -7,7 +7,12 @@
 </div> <div align="center"> 𝗠𝗶𝗻𝗼𝗿 , He / it
 </div> <div align="center"> Fatui Lore Ethusuast ♡ !?
 </div> <div align="center">   ⠀⠀
-</div> <div align="center">  ୨ Rentry ♡ Carrd ୧
+</div> <div align="center">  ୨ Rentry ♡ Carrd 
+
+<div align="center">
+
+![image](https://github.com/user-attachments/assets/1463a26c-419f-48db-9f76-3285c688268d)
+
 
 <div align="center">
 
