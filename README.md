@@ -12,7 +12,7 @@
 
 <div align="center"> He　/　it　⋮　Minor　⋮　Scara irl　!?
 <div align="center"> usually offtab　,　w2i　+　c+h　!
-<div align="center"> Fatui Lore Enthusiast　♡　Loyal Wanderer / Scara Devotee　!?
+<div align="center"> Fatui Lore Enthusiast　♡　Loyal Wanderer　/　Scara Devotee　!?
 
   INTJ 4w5　+　08.04　੭　*#1 chiscara stan　!*
 <div align="center">　
