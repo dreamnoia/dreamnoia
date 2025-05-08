@@ -12,7 +12,7 @@
 
 <div align="center"> He　/　it　⋮　Minor　⋮　Scara irl　!?
 <div align="center"> usually offtab　,　w2i　+　c+h !
-<div align="center"> Fatui Lore Enthusiast　♡　Loyal Wanderer & Scara Devotee !?
+<div align="center"> Fatui Lore Enthusiast　♡　Loyal Wanderer & Scara Devotee　!?
 <div align="center">　
 <div align="center">　୨ Rentry ♡ Carrd ୧
 <div align="center">　
