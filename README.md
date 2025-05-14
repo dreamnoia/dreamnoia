@@ -8,8 +8,7 @@
 
 <div align="center">
 
-![image](![image](https://github.com/user-attachments/assets/aca5d77b-dffc-4fb4-90f6-ee6cc0837f78)
-)
+(![image](https://github.com/user-attachments/assets/a1feae8d-e66e-46d8-8b18-47c8cf93ea25)
 
 <div align="center"> He　/　it　⋮　Minor　⋮　Scara irl　!?　>_<
 <div align="center"> usually offtab　,　w2i　+　c+h　!
