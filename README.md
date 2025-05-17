@@ -8,7 +8,8 @@
 
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/eb1ed844-5d83-43a6-aac7-451c1a51c819)
+![image](https://github.com/user-attachments/assets/ad66652f-2737-48a1-bb9a-f35c630927fc)
+
 
 
 <div align="center"> He　/　it　⋮　Minor　⋮　Scara irl　!?　>_<
