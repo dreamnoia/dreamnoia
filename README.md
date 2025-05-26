@@ -1,7 +1,6 @@
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/16d412a1-179d-4455-a9df-326b5668e251)
-
+![image](https://github.com/user-attachments/assets/16447e7e-6c58-42d0-807b-9ec7d8f8ab66)
 
 ❝　　*From Ashes Reborn*　　❞
 
@@ -20,10 +19,9 @@
 <div align="center">　୨ Rentry ♡ Carrd ୧
 <div align="center">　
 
-
-
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/f206c607-fc60-4e11-a59b-273bd655d784)
+![image](https://github.com/user-attachments/assets/3063b7a7-bbf7-4edc-a248-b6e0caeb568b)
+
 
 
