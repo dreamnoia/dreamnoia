@@ -1,6 +1,7 @@
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/83aed1e2-083b-4412-9ee8-8f4c21ab7384)
+![image](https://github.com/user-attachments/assets/16d412a1-179d-4455-a9df-326b5668e251)
+
 
 ❝　　*From Ashes Reborn*　　❞
 
@@ -8,7 +9,7 @@
 
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/584597ca-14be-4bf7-93c6-37720f5cd061)
+![image](https://github.com/user-attachments/assets/9fa8de91-21f9-456a-9369-a06be838b1b1)
 
 <div align="center"> He　/　it　⋮　Minor　⋮　Scara irl　!?　>_<
 <div align="center"> usually offtab　,　w2i　+　c+h　!
@@ -23,5 +24,6 @@
 
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/83aed1e2-083b-4412-9ee8-8f4c21ab7384)
+![image](https://github.com/user-attachments/assets/f206c607-fc60-4e11-a59b-273bd655d784)
+
 
