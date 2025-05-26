@@ -2,7 +2,7 @@
 
 ![image](https://github.com/user-attachments/assets/16447e7e-6c58-42d0-807b-9ec7d8f8ab66)
 
-❝　　*if⠀one⠀without⠀a⠀heart⠀experiences⠀joy⠀and⠀sorrow . . .*　　❞
+❝　　*He　was　originally　born　to　be　a　vessel　for　a　heart*　　❞
 
 <div align="center">　
 
