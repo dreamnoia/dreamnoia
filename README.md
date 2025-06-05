@@ -16,9 +16,6 @@
 
   INTJ 4w5　⤷　08.04　੭　*#1 two time stan　!*
 <div align="center">　
-<div align="center">　୨ [Rentry](https://rentry.co/ritualspawn) ♡ Carrd ୧
-<div align="center">　
-
 <div align="center">
 
 ![image](https://github.com/user-attachments/assets/3063b7a7-bbf7-4edc-a248-b6e0caeb568b)
