@@ -12,7 +12,7 @@
 
 <div align="center"> ᛝ 𓈒⠀⠀kuni⠀⠀aubrie²⠀ 𓂃 ⠀minor
 <div align="center"> he⠀⸝⠀it⠀⸝⠀they⠀ ♡ ⠀  ་།⠀⠀intj 4w5
-<div align="center"> gender-fluid      ♡࿐ྂ。      transmasc
+<div align="center"> scara      ♡࿐ྂ。      enthusiast
 
 <div align="center">　
 <div align="center">
