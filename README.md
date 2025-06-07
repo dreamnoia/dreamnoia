@@ -11,7 +11,7 @@
 ![image](https://github.com/user-attachments/assets/9fa8de91-21f9-456a-9369-a06be838b1b1)
 
 <div align="center"> ᛝ 𓈒⠀⠀kuni⠀⠀aubrie²⠀ 𓂃 ⠀minor
-<div align="center"> he⠀₊     ­࣭ ­­ ۫ ⠀⠀they ⠀⠀࿓ ⠀⠀it ⠀꒱꒱
+<div align="center"> he⠀⸝⠀it⠀⸝⠀they⠀ ♡ ⠀  ་།⠀⠀intj 4w5
 <div align="center"> gender-fluid      ♡࿐ྂ。      transmasc
 
 <div align="center">　
