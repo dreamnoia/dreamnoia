@@ -1,9 +1,9 @@
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/c33bb780-0d3d-4b90-a86b-6a411467bf81)
+![image](https://github.com/user-attachments/assets/993ba80d-64d9-431e-8e5b-3c5fb5cc3f6c)
 
 
-❝　　*He　was　originally　born　to　be　a　vessel　for　a　heart*　　❞
+❝　　*Cause　pretty　girls　can　never　die*　　❞
 
 <div align="center">　
 
@@ -24,7 +24,8 @@ he / *it* / **ₜₕ**ₑy⠀𓂃⠀✿⠀⠀*intj*⁴ʷ⁵
 <div align="center">　
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/32342e0a-4a4f-477c-ae0e-65bdd1cce430)
+![image](https://github.com/user-attachments/assets/9175fcb3-6bef-47e3-a567-79b213928610)
+
 
 
 
