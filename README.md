@@ -8,11 +8,17 @@
 
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/9fa8de91-21f9-456a-9369-a06be838b1b1)
+![image](https://github.com/user-attachments/assets/9935d45a-5fe2-41ec-b31d-bafa1a20c590)
 
-<div align="center"> ᛝ 𓈒⠀⠀kuni⠀⠀aubrie²⠀ 𓂃 ⠀minor
-<div align="center"> he⠀⸝⠀it⠀⸝⠀they⠀ ♡ ⠀  ་།⠀⠀intj 4w5
-<div align="center"> scara      ♡࿐ྂ。      enthusiast
+<div align="center"> 
+
+  ᛝ 𓈒⠀⠀aubrie⠀ᵒʳ⠀*kuni*⠀ 𓂃 ⠀minor
+<div align="center">
+  
+he / *it* / **ₜₕ**ₑy⠀𓂃⠀✿⠀⠀*intj*⁴ʷ⁵
+<div align="center"> 
+  
+  *Gender*fluid      ꒰ᐢ. .ᐢ꒱      **T**masc⠀ྀིཀ      bi ୨୧
 
 <div align="center">　
 <div align="center">
