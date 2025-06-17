@@ -23,7 +23,7 @@ he / *it* / **ₜₕ**ₑy⠀𓂃⠀✿⠀⠀*intj*⁴ʷ⁵
 
   <p align="center"
 
- [01](https://rentry.co/spirtual)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [02](https://dreamnoia.atabook.org/)  ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [03](https://rentry.co/princessen)
+ [01](https://rentry.co/spirtual)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [02](https://dreamnoia.atabook.org/)  ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [03](https://www.tiktok.com/@puppetistic)
 
 <div align="center">　
 <div align="center">
