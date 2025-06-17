@@ -21,6 +21,10 @@ he / *it* / **ₜₕ**ₑy⠀𓂃⠀✿⠀⠀*intj*⁴ʷ⁵
   
   *Gender*fluid      ꒰ᐢ. .ᐢ꒱      **T**masc⠀ྀིཀ      bi ୨୧
 
+  <p align="center"
+
+ [01](https://rentry.co/spirtual)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [02](https://rentry.co/angeletic)‎  ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [03](https://rentry.co/princessen)
+
 <div align="center">　
 <div align="center">
 
