@@ -1,6 +1,7 @@
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/16447e7e-6c58-42d0-807b-9ec7d8f8ab66)
+![image](https://github.com/user-attachments/assets/c33bb780-0d3d-4b90-a86b-6a411467bf81)
+
 
 ❝　　*He　was　originally　born　to　be　a　vessel　for　a　heart*　　❞
 
@@ -23,7 +24,8 @@ he / *it* / **ₜₕ**ₑy⠀𓂃⠀✿⠀⠀*intj*⁴ʷ⁵
 <div align="center">　
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/3063b7a7-bbf7-4edc-a248-b6e0caeb568b)
+![image](https://github.com/user-attachments/assets/32342e0a-4a4f-477c-ae0e-65bdd1cce430)
+
 
 
 
