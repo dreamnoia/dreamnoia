@@ -23,7 +23,6 @@ he / *it* / **ₜₕ**ₑy⠀𓂃⠀✿⠀⠀*intj*⁴ʷ⁵
 
   <p align="center"
 
- [01](https://www.roblox.com/share?code=dc691b618ba5194b9b9c9bdd30ee4bed&type=Profile&source=ProfileShare&stamp=1750189760291) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [02](https://dreamnoia.atabook.org/)  ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [03](https://www.tiktok.com/@puppetistic)
 
 <div align="center">　
 <div align="center">
