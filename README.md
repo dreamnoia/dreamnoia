@@ -16,7 +16,7 @@
   ᛝ 𓈒⠀⠀aubrey⠀ᵒʳ⠀*kuni*⠀ 𓂃 ⠀𝓂inor
 <div align="center">
   
-*any* pronouns⠀𓂃⠀✿⠀⠀*intp*⁴ʷ⁵
+*any* pronouns⠀𓂃⠀✿⠀⠀*intj*⁴ʷ⁵
 <div align="center"> 
   
   *non*binary      ꒰ᐢ. .ᐢ꒱      **g**fluid⠀ྀིཀ      bi ୨୧
