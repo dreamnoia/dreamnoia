@@ -13,7 +13,7 @@
 
 <div align="center"> 
 
-  ᛝ 𓈒⠀⠀ghostie⠀ᵒʳ⠀*kuni*⠀ 𓂃 ⠀𝓂inor
+  ᛝ 𓈒⠀⠀seb⠀ᵒʳ⠀*kuni*⠀ 𓂃 ⠀𝓂inor
 <div align="center">
   
 *any* pronouns⠀𓂃⠀✿⠀⠀*intj*⁴ʷ⁵
